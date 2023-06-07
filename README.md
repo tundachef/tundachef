@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @tundachef
-- 👀 I’m a house nigga I shine cutlery
+- 👀 I be speaking to the souls of men
 - 🌱 African god
-- 💞️ Only gs
-- 📫 How to reach me: please send an angel, don't show ya face
+- 💞️ Started with a pallet
+- 📫 Highest elevation of the self
 
 <!---
 tundachef/tundachef is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
