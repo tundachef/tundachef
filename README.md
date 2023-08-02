@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @tundachef
-- 👀 I be speaking to the souls of men
+- 👀 I can't see nothing
 - 🌱 African god
-- 💞️ Started with a pallet
-- 📫 Highest elevation of the self
+- 💞️ Meh meh
+- 📫 send Hennessy with every email
 
 <!---
 tundachef/tundachef is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
